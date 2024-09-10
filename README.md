@@ -8,4 +8,4 @@ Meu nome é Diego Paulino
 
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-![](https://tenor.com/pt-BR/view/andressa-gif-10063181)
+![](https://media1.tenor.com/m/fSRzkbXXcBEAAAAC/andressa-urach.gif)
